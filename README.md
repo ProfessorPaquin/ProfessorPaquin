@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @ProfessorPaquin!
 - 👀 I’m interested in videogame art and development.
 - 📫 How to reach me: s.paquin1@snhu.edu
-- ⚡ Fun fact: I have over 100 first cousins.
+- ⚡ Fun fact: I have over 100 first cousins!
